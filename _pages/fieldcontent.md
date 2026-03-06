@@ -1,5 +1,6 @@
 Working and teaching at Caltech and living in southern California has afforded me the opportunity to see a wide range of geological settings. My recent experience in the field includes:
 
+-Mapping and sampling the Neoproterozoic Jabal Ess ophiolite in Saudi Arabia (2026)
 - Presenting at and attending the 2025 GSA Thompson Field Forum to study ophiolite and arc assemblages preserved in western and central Cuba (2025)
 - "Enrichment" field trip to Mongolia with geologists from Caltech and the Mongolian University of Science and Technology (2025)
 - Assistant teaching Ge 121 (Advanced Field Geology) to map and measure the geochemistry of tuff deposits preserved in a Miocene basin in the Mojave (2025)
